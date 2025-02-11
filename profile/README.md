@@ -1,3 +1,5 @@
+![Cookie_Clicker_logo](https://github.com/user-attachments/assets/ea6b2cd4-93ff-4adb-af8b-646df483f29a)
+
 # Cookie Clicker Unblocked – Build Your Cookie Empire Anytime, Anywhere
 
 Welcome to **Cookie Clicker Unblocked**, the ultimate incremental game that challenges you to bake cookies, unlock upgrades, and grow your cookie empire. This unblocked version ensures you can enjoy the addictive gameplay from school, work, or home without restrictions. Start small, strategize, and bake your way to success!
